@@ -1,2 +1,0 @@
-# Unai-Taboada
-Nire jolasa
